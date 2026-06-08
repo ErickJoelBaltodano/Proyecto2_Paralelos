@@ -1,1 +1,0 @@
-# Proyecto2_Paralelos
